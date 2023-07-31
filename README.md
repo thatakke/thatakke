@@ -3,5 +3,5 @@ I'm Akin working as an Associate Information Management Officer at UNHCR, the UN
 
 You can find me on
 
-* **[Twitter] (https://twitter.com/thatakke)**
+* (https://twitter.com/thatakke) "Twitter".
 * **[LinkedIn} (https://www.linkedin.com/in/akinalp-orhan/)**
